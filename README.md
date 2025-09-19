@@ -1,4 +1,4 @@
 # resume
-This is where I upload my detailed resume. I'll try to keep it up to date.
+This is where I upload my detailed and 2-pages resumes. I'll try to keep it up to date.
 
-Last update: Dec. 16th 2024
+Last update: Sept. 19th 2025
